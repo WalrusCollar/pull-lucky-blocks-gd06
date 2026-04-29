@@ -1,4 +1,4 @@
-
+Experience pull lucky blocks like never before with pull lucky blocks Script hidden, the #1 Script. Includes no cooldown and one-hit kill for
 
 
 
